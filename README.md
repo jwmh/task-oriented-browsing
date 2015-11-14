@@ -30,7 +30,11 @@ You see? Even my writing is like this -- a reflection of my brain, seeing new of
 
 It's no wonder I have a hard time with the web -- an effectively limitless/infinite-breadth-and-depth information {source | [and] clearinghouse}.
 
+
+
 ===
+# About me
+
 I'm interested in discovering and exploring ways to make things and life more awesome/wonderful for everyone.  For me this includes optimizing and effectiveness.  In particular, I'm interested in meaningful ways which promote/accererate/develop/value greater connection, self-knowledge, other-knowledge, and world-knowledge -- in ways which can [then] be [further] applied to make life more awesome: a meta-/virtuous cycle.
 
 Looking at / examining / understanding:
